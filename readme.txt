@@ -1,6 +1,10 @@
 
-hello all
+Hello all, oru kutty story sollatta,
 
-https://www.dropbox.com/scl/fi/pm4duqkzsohqk5onb6yeh/Linker4.txt?rlkey=ujyg304kw27pu78legekk8zf2&st=waifj8nl&dl=0
 
-Input:		wlqbxqqquo frddddp whqkkkkhw mrb
+In the mystical land of Eldoria, an age-old prophecy whispers of a quest shrouded in mystery and destiny. Eamon, a simple farmer, stumbles upon the first clue to this enigmatic journey—a weathered scroll shorturl.at/wBEH0 unearthed amidst his fields. Intrigued by its ancient markings, he sets forth on a journey fueled by curiosity and a yearning for adventure.
+
+As Eamon traverses the winding paths of Eldoria, he encounters allies and adversaries, each offering fragments of insight and wisdom. Along the way, fate leads him to a peculiar key, wlqbxqqquo frddddp whqkkkkhw mrb origins as mysterious as its purpose. With newfound resolve, Eamon delves deeper into the secrets of the prophecy, guided by the whispers of destiny that echo through the land.
+
+	
+
